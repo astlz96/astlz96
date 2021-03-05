@@ -17,7 +17,7 @@
 
 ![Discord](https://discord.c99.nl/widget/theme-1/561855812922900512.png)
 
-Hey, I'm Subodh Inamdar, a Web Developer 🚀, Back End Developer & Discord Bot Developer from India. ~~And a Weeb.~~
+Hey, I'm Yosef Osama, a Web Developer 🚀, Back End Developer & Discord Bot Developer from Iraq. ~~And a Weeb.~~
 
  **Information:**
 
